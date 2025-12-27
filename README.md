@@ -1,0 +1,2 @@
+# vaultappoffline
+politica de privacidade
